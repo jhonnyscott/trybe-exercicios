@@ -1,0 +1,1 @@
+# Exercicio 1, dia 1, seção 3, modulo de fundamentos.
