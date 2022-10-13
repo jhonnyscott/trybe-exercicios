@@ -1,0 +1,1 @@
+# exercícios do dia 1
